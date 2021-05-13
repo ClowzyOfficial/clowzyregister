@@ -1,1 +1,4 @@
 # clowzyregister
+
+
+ÇALINIRSA SİKERİM
